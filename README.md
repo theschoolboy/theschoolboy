@@ -5,7 +5,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=000000&width=435&lines=I'm+going+to+pack+up+all+the+pain)](https://git.io/typing-svg)
 <p align="center">
-  <img src="https://i.pinimg.com/originals/bd/3a/46/bd3a469328091d1a3b85a4522c2803ff.gif" width="450">
+  <img src="https://i.pinimg.com/736x/10/17/93/101793712cab7ce078f301018e88a7a5.jpg" width="450">
 </p>   <p align="center">
 
 <p align="center">
