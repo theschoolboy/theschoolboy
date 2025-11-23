@@ -5,7 +5,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=9F9F9F&width=435&lines=you+make+me+want+to+scream)](https://git.io/typing-svg)
 <p align="center">
-  <img src="https://i.postimg.cc/FRJgCfwt/Screenshot-2025-11-19-6-53-14-PM-removebg-preview.png" width="450">
+  <img src="https://i.pinimg.com/originals/a5/79/e0/a579e08d628013d34a0a7ca3a3ebce7b.gif" width="450">
 </p>   <p align="center">
 
 <p align="center">
