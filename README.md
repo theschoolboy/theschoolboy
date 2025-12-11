@@ -31,7 +31,15 @@ biggest jonathan  / stonathan fan
   <!-- byf -->
    <br>
 <p align="left">
-<ins><b><em>byf</em></b></ins> Bipolar  13y I lack empathy  I've got bad mood swings  #1 charlie heaton fan ,,   
+<ins><b><em>byf</em></b></ins>  prns only i'm a boy, 13yo idc what age u are int any, bipolar & maybe npd, Irish/hippie, i've got bad mood swings and i'm angry most of the time so interact with caution, i have a passion for photography and WWII, I can come off to some people as mean but its just how I am  #1 charlie heaton fan ,,   
+
+     
+ <!-- INT -->
+   <br>
+<p align="center">
+<ins><b><em>INT</em></b></ins>  stranger things Mr robot queen the monkees sam and colby the beatles house MD The Pacific metalocalypse twin peaks scream pnd, metallica star trek
+ 
+  <a href="https://imgbb.com/"><img src="https://i.ibb.co/G3PWXqvy/IMG-4707-1.png" alt="IMG 4707 (1)" border="0"></a>
      
  
   </p>
