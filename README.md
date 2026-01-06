@@ -16,7 +16,7 @@
 
 <p align="left">
 <p align="center" dir="auto">
- <a href="https://rentry.co/rickypawss">rentry</a>  <a href="https://strangerthings.atabook.org/">ata</a>  <br><a href="https://ttoziers.straw.page/">straw</a><br>
+ <a href="https://rentry.co/rickypawss">rentry</a>  <a href="https://strangerthings.atabook.org/">ata</a>  <br><a href="https://jbyers.straw.page/">straw</a><br>
 
  
 
