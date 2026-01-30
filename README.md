@@ -18,20 +18,23 @@
   <!-- DNI -->
    <br>
 <p align="left">
-<ins><b><em>dni</em></b></ins> wip  
+<ins><b><em>dni</em></b></ins> sensitve people⠀  vizziepop ⠀ tcoall  ⠀ no dni really.
 
   <!-- byf -->
    <br>
 <p align="left">
-<ins><b><em>byf</em></b></ins>  wip   
+<ins><b><em>byf</em></b></ins>  13 he/him bipolar-depression single ISTP-T Irish  - disc @attajohn
+ 
+   
 
      
  <!-- INT -->
    <br>
 <p align="center">
-<ins><b><em>INT</em></b></ins>  swip
+<ins><b><em>INT</em></b></ins>  stranger things  teen wolf  marvel  mr robot  IT 2017/wtd  Wednesday  Billy Knight  donnie darko  spree 2020  metalocalypse  supernatural  the schoolboy
  
- <a href="https://imgbb.com/"><img src="https://i.ibb.co/LdqxRFSm/IMG-4707-4.png" alt="IMG 4707 (4)" border="0"></a>
+<p align="center">
+<img src="https://ibb.co/mCFvnRCt" style="max-width: 450%; "/></p>
  
  
   </p>
