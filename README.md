@@ -37,7 +37,7 @@ ricky⠀⠀tony⠀⠀jonathan
  <!-- INT -->
    <br>
 <p align="center">
-<ins><b><em>INT</em></b></ins>  stranger things  teen wolf  marvel  mr robot  IT 2017/wtd  Wednesday  Billy Knight  donnie darko  spree 2020  metalocalypse  supernatural  the schoolboy  house md
+<ins><b><em>INT</em></b></ins>  marvel  strangerthings  teen wolf  mr robot  IT 2017/wtd  Wednesday  Billy Knight  donnie darko  spree 2020  metalocalypse  supernatural  the schoolboy  house md
  
 <p align="center">
 <img src="https://files.catbox.moe/q1cum0.png" style=" width: {50:60}; "/></p>
