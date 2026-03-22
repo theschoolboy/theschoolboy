@@ -1,7 +1,7 @@
 
 
 <p align="center">
-<img src="https://files.catbox.moe/hejktg.png" style="max-width: 450%; "/></p>
+<img src="https://files.catbox.moe/dk6jvk.png" style="max-width: 450%; "/></p>
 
    <div align="center">
 ricky⠀⠀tony⠀⠀jonathan
