@@ -6,7 +6,7 @@
    <div align="center">
 ricky⠀⠀tony⠀⠀jonathan
 
-⠀⠀⠀13-15⠀⠀⠀⠀ftm + mlm
+⠀⠀⠀13-15⠀⠀⠀⠀semi-toxic + mlm
 
 
 <p align="center">
