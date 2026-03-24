@@ -1,4 +1,3 @@
-ultron yumes DNI - ok? ultron is my bf 
 
 <p align="center">
 <img src="https://i.pinimg.com/originals/8f/2f/64/8f2f643856bbfde31c65309563480d60.gif" style="max-width: 450%; "/></p>
